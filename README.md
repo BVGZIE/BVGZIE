@@ -7,9 +7,18 @@ tyrying to figure out htis website ill make this pretty soon i swear 🥹🤞
 </h1>
 
 <h2>
-  Uhm...
+  About me and comfort zones
 </h2>
 
+My name is Andy
+
+He/Him | Theythem | Libramasculine
+
+Learning how to code
+
+16, Jan/23
+
+DNI: Propship, Racists, Transphobes, Bigots, Zoophiles, Self diagnosers, Righits, Pro-AI(This includes if you talk to AI chatbots), Pro Incest/Stepcest, Age Reg, Trendhoppers/posers, 
 
 <img src="https://64.media.tumblr.com/f24d6e555267f557a6b909f57aa18253/cf3be3f8d62d7a21-5c/s250x400/f087bab524bc0ef10cdcfae78772038b4c01a820.gifv" alt="found from rmstitanics" width="820" height="312">
 
