@@ -1,3 +1,4 @@
 tyrying to figure out htis website ill make this pretty soon i swear 🥹🤞
 
-<img src="https://64.media.tumblr.com/6a0f5c3cb8fbb015e5bed5894156bdd0/eb5e40a4245fc7b4-4b/s500x750/895e4b247d307af4ef359cf596b3c5420914063a.gif" alt="https://www.tumblr.com/animatedglittergraphics-n-more/787342777442844672/multicolored-dividers?source=share" width="820" height="312">
+<img src="https://64.media.tumblr.com/7d611477139b6a23076f787946e4d080/3c1210d219c414ab-53/s1280x1920/caa176d66417c8a1ad19f28dc9b88ea293e52c35.gifv" alt="found from rmstitanics" width="820" height="312">
+
