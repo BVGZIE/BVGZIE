@@ -18,7 +18,7 @@ Learning how to code
 
 16, Jan/23
 
-**DNI:** Propship, Racists, Transphobes, Bigots, Zoophiles, Self diagnosers, Righits, Pro-AI(This includes if you talk to AI chatbots), Pro Incest/Stepcest, Age Reg, Trendhoppers/posers, 
+**DNI:** Propship, Racists, Transphobes, Bigots, Zoophiles, Self diagnosers, Rightists, Pro-AI(This includes if you talk to AI chatbots), Pro Incest/Stepcest, Age Reg, Trendhoppers/posers, 
 
 <img src="https://i.imgur.com/sJ4dPIK.gif" alt="My pony... hehe" width="120" height="120">
 
