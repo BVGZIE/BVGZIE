@@ -22,7 +22,7 @@ Learning how to code
 
 **DNI:** Proship, Racists, Transphobes, Bigots, Zoophiles, Self diagnosers, Rightists, Pro-AI(This includes if you talk to AI chatbots), Pro Incest/Stepcest, Age Reg, Trendhoppers/posers,
 
-<img src="https://i.imgur.com/sJ4dPIK.gif" alt="My pony... hehe" width="120" height="120">
+<img src="https://i.imgur.com/sJ4dPIK.gif" alt="My pony... hehe" width="120" height="120"> <- my pony :3
 
 <img src="https://64.media.tumblr.com/f24d6e555267f557a6b909f57aa18253/cf3be3f8d62d7a21-5c/s250x400/f087bab524bc0ef10cdcfae78772038b4c01a820.gifv" alt="found somewhere on tumblr" width="820" height="312">
 
