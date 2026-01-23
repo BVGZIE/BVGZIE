@@ -17,7 +17,7 @@ He/Him | Theythem | Libramasculine
 
 Learning how to code
 
-16, Jan/23
+17, Jan/23
 
 **Discord**: buggiesdead
 
